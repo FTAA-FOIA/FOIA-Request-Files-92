@@ -1,1 +1,3 @@
 # FOIA-Request-Files-92
+
+I've been following a series on youtube called FTAA Archive - https://www.youtube.com/channel/UC3dByKCd4ur9fKME29ShbUg. I was pretty sure it was another analog horror series like Local 58 or FNAF VHS. But just on a hunch I sent a FOIA request to the government to see if I could confirm that it was fictional or not. I sent the request to the National Archives and they forwarded it to the Department of Commerce apparently. I was surprised to get an answer really and was excited when I saw that they sent documents to me. They sent them attached to an email today. I couldn't think of a better way to share the documents so I uploaded them here to share with others.
